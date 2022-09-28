@@ -3,7 +3,7 @@
 I draw a lot of anime fanart and some _Genshin Impact_ fanart. I also do animations.
 Animes I've drawn Fanart of:
 - Demon Slayer:
-[Chibi Characters](https://drive.google.com/file/d/1ImCW3lwV1LeBIllVCB9CR1C-n7XKgGru/view?usp=sharing)
+![Chibi Characters](https://drive.google.com/file/d/1ImCW3lwV1LeBIllVCB9CR1C-n7XKgGru/view?usp=sharing)
 [Kanao](https://drive.google.com/file/d/1ugjCrYsIsYLDT9Hb8eaD7_bX5V2AOgGU/view?usp=sharing)
 [Shinobu](https://drive.google.com/file/d/1YRSCyqaAxfyZBSObffpT8EyaM0rZctLy/view?usp=sharing)
 - Toilet Bound Hanako Kun
