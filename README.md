@@ -1,4 +1,3 @@
 # Art-Portfolio
-theme: merlot
-#Fanart
-##Original Characters
+## Fanart
+### Original Characters
