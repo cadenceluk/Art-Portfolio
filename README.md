@@ -6,7 +6,6 @@ Animes I've drawn Fanart of:
 [Chibi Characters](https://drive.google.com/file/d/1ImCW3lwV1LeBIllVCB9CR1C-n7XKgGru/view?usp=sharing)
 [Kanao](https://drive.google.com/file/d/1ugjCrYsIsYLDT9Hb8eaD7_bX5V2AOgGU/view?usp=sharing)
 [Shinobu](https://drive.google.com/file/d/1YRSCyqaAxfyZBSObffpT8EyaM0rZctLy/view?usp=sharing)
-(https://github.com/cadenceluk/Art-Portfolio/issues/1#issue-1389787814https://github.com/cadenceluk/Art-Portfolio/issues/1#issue-1389787814)
 - Toilet Bound Hanako Kun
 [Hanako, Nene, Aoi](https://youtu.be/Anl0JWMoWCQ)
 - Sword Art Online
