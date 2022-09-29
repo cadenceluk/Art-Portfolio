@@ -3,20 +3,20 @@
 I draw a lot of anime fanart and some _Genshin Impact_ fanart. I also do animations.
 Some animes I've drawn fanart of:
 
-_Demon Slayer_:
+1. _Demon Slayer_:
 - ![Chibi Characters](https://drive.google.com/file/d/1ImCW3lwV1LeBIllVCB9CR1C-n7XKgGru/view?usp=sharing)
 - ![Kanao](https://drive.google.com/file/d/1ugjCrYsIsYLDT9Hb8eaD7_bX5V2AOgGU/view?usp=sharing) 
 - ![Shinobu](https://drive.google.com/file/d/1YRSCyqaAxfyZBSObffpT8EyaM0rZctLy/view?usp=sharing)
 
-_Toilet Bound Hanako Kun_:
+2. _Toilet Bound Hanako Kun_:
 - [Hanako, Nene, Aoi](https://youtu.be/Anl0JWMoWCQ)
 
-_Sword Art Online_:
+3. _Sword Art Online_:
 - ![Kirito, Asuna, & Yui](https://photos.google.com/photo/AF1QipMRR-c7yi1rMBZIphLSocRMSEXrPTOjQKlh6w3k)
 - ![Yuuna](https://photos.google.com/photo/AF1QipMwK37Y6B9MIVIFFodZbs1TveSxlNyr7HIqNV7u)
 - [Sinon](https://youtu.be/nLFQdcMeZ_k)
 
-_SpyxFamily_:
+4. _SpyxFamily_:
 - [Forger Animation](https://youtu.be/pO6YLdVRd_g)
 - [Anya Animation](https://youtu.be/D9iCrxKuh9Y)
 - [Yor Animation](https://youtu.be/qwMBH066Uug)
@@ -30,3 +30,10 @@ _SpyxFamily_:
 ## Others
 I have drawn many other characters so check out my [Youtube Channel](https://www.youtube.com/channel/UCV2ia3mil29mhjn_7H5UgYg) and 
 [Instagram](https://www.instagram.com/sumi.sketch/) to see more art.
+
+Youtube Milestones:
+[x] 50 Subs
+[x] 100 subs
+[ ] 500 subs
+[x]over 250 hrs of watch time
+[x]over 40k views
