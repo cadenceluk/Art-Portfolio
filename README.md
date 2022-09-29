@@ -1,5 +1,4 @@
 # Art-Portfolio
-theme: merlot
 ## Fanart
 I draw a lot of anime fanart and some _Genshin Impact_ fanart. I also do animations.
 Some animes I've drawn fanart of:
