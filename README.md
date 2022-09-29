@@ -1,8 +1,3 @@
----
----
-
-@import "{{ merlot.theme }}";
-
 # Art-Portfolio
 ## Fanart
 I draw a lot of anime fanart and some _Genshin Impact_ fanart. I also do animations.
