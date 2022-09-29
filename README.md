@@ -32,8 +32,9 @@ I have drawn many other characters so check out my [Youtube Channel](https://www
 [Instagram](https://www.instagram.com/sumi.sketch/) to see more art.
 
 Youtube Milestones:
-[x] 50 Subs
-[x] 100 subs
-[ ] 500 subs
-[x]over 250 hrs of watch time
-[x]over 40k views
+
+- [x] 50 Subs
+- [x] 100 subs
+- [ ] 500 subs
+- [x]over 250 hrs of watch time
+- [x]over 40k views
