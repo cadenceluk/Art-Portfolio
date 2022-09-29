@@ -35,6 +35,5 @@ Youtube Milestones:
 
 - [x] 50 Subs
 - [x] 100 subs
-- [ ] 500 subs
 - [x] over 250 hrs of watch time
 - [x] over 40k views
