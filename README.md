@@ -28,6 +28,5 @@ _SpyxFamily_:
 - ![Sakura](https://drive.google.com/file/d/18e--M5jCEpT3mn_apaLyxidIQ70A0bGv/view?usp=sharing)
 
 ## Others
-I have drawn many other characters so check out my **Youtube channel** and **Instagram** to see more art.
-[Youtube](https://www.youtube.com/channel/UCV2ia3mil29mhjn_7H5UgYg)
-[Instagram](https://www.instagram.com/sumi.sketch/)
+I have drawn many other characters so check out my [Youtube Channel](https://www.youtube.com/channel/UCV2ia3mil29mhjn_7H5UgYg) and 
+[Instagram](https://www.instagram.com/sumi.sketch/) to see more art.
