@@ -37,5 +37,3 @@ Youtube Milestones:
 - [x] 100 subs
 - [x] over 250 hrs of watch time
 - [x] over 40k views
-
-![Cat](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg1.ak.crunchyroll.com%2Fi%2Fspire1%2F75188c9e255b8acb03fabe5ec1da4f1d1627702728_large.png&imgrefurl=https%3A%2F%2Fwww.crunchyroll.com%2Fanime-feature%2F2021%2F08%2F08%2Fquiz-which-purrfect-anime-cat-are-you-most-like&tbnid=3F7UvlwoJyRy7M&vet=12ahUKEwimt6mU0rr6AhWKCd4KHXNABG0QMygBegUIARDrAQ..i&docid=ga6wH284aIQ3DM&w=200&h=200&q=cat&hl=en-US&ved=2ahUKEwimt6mU0rr6AhWKCd4KHXNABG0QMygBegUIARDrAQ)
