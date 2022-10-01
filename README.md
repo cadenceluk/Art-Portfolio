@@ -37,6 +37,3 @@ Youtube Milestones:
 - [x] 100 subs
 - [x] over 250 hrs of watch time
 - [x] over 40k views
-
-
-![pattern](https://images.app.goo.gl/DMggc3yX1hBpimiJA)
