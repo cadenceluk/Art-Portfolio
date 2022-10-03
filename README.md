@@ -28,7 +28,6 @@ Some animes I've drawn fanart of:
 
 ![original_09de603a-7344-47cb-a4aa-c4a1b28fd48d_PXL_20210806_033340733](https://user-images.githubusercontent.com/114519420/193706053-86b42da6-5056-4769-8a02-75f1173478a8.jpg)
 
-![original_09de603a-7344-47cb-a4aa-c4a1b28fd48d_PXL_20210806_033340733](https://user-images.githubusercontent.com/114519420/193705570-db744d90-80c4-48ec-9189-f09b7e15a2f0.jp
 - [Sinon](https://youtu.be/nLFQdcMeZ_k)
 
 4. _SpyxFamily_:
