@@ -22,8 +22,11 @@ Some animes I've drawn fanart of:
 
 - Kirito, Asuna, & Yui
 
-![original_3452f559-0ab9-46ce-99fd-514839581c76_PXL_20210803_003633136](https://user-images.githubusercontent.com/114519420/193705639-27f3b1ca-9476-423e-af8f-36c4d96dde03.jp
+![original_3452f559-0ab9-46ce-99fd-514839581c76_PXL_20210803_003633136](https://user-images.githubusercontent.com/114519420/193706042-c5a4452d-087a-4d85-a8ab-40e4a18cc0fc.jpg)
+
 - Yuuna
+
+![original_09de603a-7344-47cb-a4aa-c4a1b28fd48d_PXL_20210806_033340733](https://user-images.githubusercontent.com/114519420/193706053-86b42da6-5056-4769-8a02-75f1173478a8.jpg)
 
 ![original_09de603a-7344-47cb-a4aa-c4a1b28fd48d_PXL_20210806_033340733](https://user-images.githubusercontent.com/114519420/193705570-db744d90-80c4-48ec-9189-f09b7e15a2f0.jp
 - [Sinon](https://youtu.be/nLFQdcMeZ_k)
