@@ -2,9 +2,10 @@
 ## Fanart
 I draw a lot of anime fanart and some _Genshin Impact_ fanart. I also do animations.
 Some animes I've drawn fanart of:
-
+![Kimetsu no yaiba stickers](https://user-images.githubusercontent.com/114519420/193704551-eb89d948-bde5-44bb-93f4-9687995ba2a7.png)
 1. _Demon Slayer_:
 - ![Chibi Characters](https://drive.google.com/file/d/1ImCW3lwV1LeBIllVCB9CR1C-n7XKgGru/view?usp=sharing)
+
 - ![Kanao](https://drive.google.com/file/d/1ugjCrYsIsYLDT9Hb8eaD7_bX5V2AOgGU/view?usp=sharing) 
 - ![Shinobu](https://drive.google.com/file/d/1YRSCyqaAxfyZBSObffpT8EyaM0rZctLy/view?usp=sharing)
 
